@@ -1,1 +1,1 @@
-# MizukiN.github.jp
+# MizukiN.github.io
